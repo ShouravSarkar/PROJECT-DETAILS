@@ -1,0 +1,2 @@
+# PROJECT-DETAILS
+esp32 sim7600g
