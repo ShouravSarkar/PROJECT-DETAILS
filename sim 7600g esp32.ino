@@ -1,8 +1,8 @@
-please don't text about email outside of fiverr.It is out of fiverr Terms and conditions . 
+please do not text about email outside of fiverr.It is out of fiverr Terms and conditions . 
 I will share another payment details as fiverr is not working, send me a mail . I will give you a payoneer payment
 link in which you can use your card to pay 
   
-  whats app : +8801783350821
+  whats app : 8801783350821
    mail  : shourav.EEE015@gmail.com
 /*
   Blink
