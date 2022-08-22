@@ -1,4 +1,4 @@
-please do not text about email outside of fiverr.It is out of fiverr Terms and conditions . 
+please do not text about email and payment in fiverr.It is out of fiverr Terms and conditions, so it might create issues . 
 I will share another payment details as fiverr is not working, send me a mail . I will give you a payoneer payment
 link in which you can use your card to pay 
   
