@@ -1,5 +1,6 @@
 please don't text about email outside of fiverr.It is out of fiverr Terms and conditions . 
-I am trying to find someone for the code as you described. and contact me here. I as searching offline so i can share details of your contact also . 
+I will share another payment details as fiverr is not working, send me a mail . I will give you a payoneer payment
+link in which you can use your card to pay 
   
   whats app : +8801783350821
    mail  : shourav.EEE015@gmail.com
