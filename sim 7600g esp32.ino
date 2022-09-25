@@ -1,9 +1,8 @@
-please do not text about email and payment in fiverr.It is out of fiverr Terms and conditions, so it might create issues . 
-I will share another payment details as fiverr is not working, send me a mail . I will give you a payoneer payment
-link in which you can use your card to pay 
+It is out of fiverr TOS to make contact outside fiverr,and share mail. here is my mail address. I don't use slack. 
+  but send me a email and link. I will install and join
   
   whats app : 8801783350821
-   mail  : shourav.EEE015@gmail.com
+   mail  : shouravEEE015@gmail.com
 /*
   Blink
   Turns an LED on for one second, then off for one second, repeatedly.
