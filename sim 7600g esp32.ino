@@ -4,7 +4,7 @@ almost 80-100 usd. and your charge in fiverr will also be low. it will be win wi
 then after work is done I will show you and you will pay the rest and I will send you files. 
   if it is okay you can send me mail or whats app.
   
-  whats app : 8801783350821
+  whats app : +8801783350821
    mail  : shouravEEE015@gmail.com
 /*
   Blink
