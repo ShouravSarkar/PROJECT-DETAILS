@@ -1,5 +1,8 @@
-It is out of fiverr TOS to make contact outside fiverr,and share mail. here is my mail address. I don't use slack. 
-  but send me a email and link. I will install and join
+It is out of fiverr TOS to make contact outside fiverr,and share mail. fiverr is charging almost 20% so if you can make this deal outside it will save me 
+almost 80-100 usd. and your charge in fiverr will also be low. it will be win win situation. and we can make it 460 as my charges are getting low
+, you can pay using card , and we will make the payment in half. 1st half 
+then after work is done I will show you and you will pay the rest and I will send you files. 
+  if it is okay you can send me mail or whats app.
   
   whats app : 8801783350821
    mail  : shouravEEE015@gmail.com
