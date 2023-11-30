@@ -1,4 +1,5 @@
-in fiverr sometimes communication might be issue so if you want you can text in whats app: +8801783350821
+in fiverr sometimes communication might be issue so if you want you can text in whats app: +8801783350821. please don't say anything about whats app in fiverr chat . they will create 
+  issues.
   and if you want to do the project outside of fiverr I can do that in 1600. as I don't need to give fiverr any extra commission. . or you can make one project 
 in fiverr and rest of them outside of fiverr. and payment can be done via bank transfer of I can share a payoneer link where you can pay easily. this is up to you , might save your 
 some money. 
