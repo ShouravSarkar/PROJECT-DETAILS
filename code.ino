@@ -1,4 +1,7 @@
-
+if you want to pay outside of fiverr as they will charge you alot you can do that
+please send me email: shouraveee015@gmail.com or WhatsApp:+8801783350821
+  i will send you my iban and you can pay easily 
+  
 *
   Blink
 
