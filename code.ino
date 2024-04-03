@@ -1,8 +1,16 @@
 if you want to pay outside of fiverr as they will charge you alot you can do that
 please send me email: shouraveee015@gmail.com or WhatsApp:+8801783350821
+ please don't talk about it in fiverr as they might create issue.in whats app or email send me a text so we can continue texting there.
+
   i will send you my iban and you can pay easily 
   
+
+
+
 *
+
+
+
   Blink
 
   Turns an LED on for one second, then off for one second, repeatedly.
