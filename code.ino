@@ -1,10 +1,7 @@
-if you want to pay outside of fiverr as they will charge you alot you can do that
-please send me email: shouraveee015@gmail.com or WhatsApp:+8801783350821
- please don't talk about it in fiverr as they might create issue.in whats app or email send me a text so we can continue texting there.
-
-  i will send you my iban and you can pay easily 
-  
-
+It will be better to contact via whats app or email. and for this project we can handle that better outside of fiverr. as fiverr will charge 20% of the total payment from me which is a lot . and it will also save your cost as well. 
+for payment I can send you my usa bank account and you can pay easily . 
+Here is my contact details : whats app :+8801783350821
+ email :shouravEEE015@gmail.com
 
 
 *
