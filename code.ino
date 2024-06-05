@@ -1,6 +1,19 @@
-It will be better to contact via whats app or email. and for this project we can handle that better outside of fiverr. as fiverr will charge 20% of the total payment from me which is a lot . and it will also save your cost as well. 
-for payment I can send you my usa bank account and you can pay easily . 
-Here is my contact details : whats app :+8801783350821
+in fiverr they charge 20% from the total amount which is quiet high, so if you want you can pay 
+directly in my US bank account. which will save quiet a good amount
+here is the bank details : 
+Here are my USD account details at Wise.
+
+Account holder: Shourav Sarkar
+ACH and Wire routing number: 026073150
+Account number: 8311955899
+Account type: Checking
+Wise's address: 30 W. 26th Street, Sixth Floor
+New York NY 10010
+United States
+
+
+Here is my contact details : whats app :+8801783350821. please send me text in gmail or whats app if you 
+agree on that.
  email :shouravEEE015@gmail.com
 
 
