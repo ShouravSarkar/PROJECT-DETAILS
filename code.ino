@@ -1,20 +1,4 @@
-in fiverr they charge 20% from the total amount which is quiet high, so if you want you can pay 
-directly in my US bank account. which will save quiet a good amount
-here is the bank details : 
-Here are my USD account details at Wise.
-
-Account holder: Shourav Sarkar
-ACH and Wire routing number: 026073150
-Account number: 8311955899
-Account type: Checking
-Wise's address: 30 W. 26th Street, Sixth Floor
-New York NY 10010
-United States
-
-
-Here is my contact details : whats app :+8801783350821. please send me text in gmail or whats app if you 
-agree on that.
- email :shouravEEE015@gmail.com
+Share your email in which you will use autodesk account. I am going to send a request in autodesk so you can easily check and get the 3d working.
 
 
 *
