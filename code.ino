@@ -1,5 +1,3 @@
-If you want then we can do that outside of Fiverr which will save your and my charges. you can do bank transfer to my IBAN. and I can make it 370 . if it is okay you can email me : Shouraveee015@gmail.com or what's app : +8801783350821
-
 
 *
 
