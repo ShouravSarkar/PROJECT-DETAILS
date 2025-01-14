@@ -1,7 +1,6 @@
-
-*
-
-
+I can make it 4000 if we work outside of fiverr, because fiverr will take a large cut from me and also from you. so if you want we can do that. payment might be half , half or milestone based.  
+if you want you can text me here : +8801783350821(whats app) 
+email: shouravEEE015@gmail.com
 
   Blink
 
