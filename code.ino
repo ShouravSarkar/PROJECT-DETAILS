@@ -1,4 +1,4 @@
-I can make it 5800 if we work outside of Fiverr because Fiverr will take 20% from me and also from you, . So, if you want, we can do that. Payment might be half, half, or milestone-based, you can do one thing as well. make a small payment in fiverr or 1/3rd payment in fiverr. rest in bank transfer or using payoneer.  
+I can make it 5800 if we work outside of Fiverr because Fiverr will take 20% from me and also from you, . So, if you want, we can do that. Payment might be half, half, or milestone-based, you can do one thing as well. make a small payment in fiverr or  payment on fiverr until the project runs for tracking details . rest in bank transfer or using payoneer.  
 if you want that way then you can text me here : +8801783350821(whats app) 
 email: shouravEEE015@gmail.com
   Don't talk about this in fiverr as they don't support this. 
