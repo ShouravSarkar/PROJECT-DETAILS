@@ -1,16 +1,1 @@
-here is my email: shouravEEE015@gmail.com
-whats app: +4915733782362
-may be we can discuss better in whats app or face to face as well as I am studying here in tu Darmstadt.
-Please don't discuss about this in fiverr as it is not in fiver's term and condition
-
-void setup() {
-  put your setup code here, to run once:
-  pinMode(13, OUTPUT);
-}
-void loop() {
-  put your main code here, to run repeatedly:
-  digitalWrite(13, HIGH);
-  delay(1000);
-  digitalWrite(13, LOW);
-  delay(1000);
-}
+https://meet.google.com/ckq-mcau-ewe
